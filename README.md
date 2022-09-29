@@ -1,0 +1,4 @@
+- 👋 Hi, I’m DT
+- I just started a FINTECH Bootcamp
+- I would like to keep developing my knowledge by learning from others and additional courses
+--->
